@@ -1,3 +1,8 @@
+
+![zz](https://github.com/user-attachments/assets/c2110daf-1576-49af-aa04-9e06d34da596)
+
+
+
 - 👋 Hi, I’m Hariom Verma  
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
